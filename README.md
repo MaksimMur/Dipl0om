@@ -1,0 +1,2 @@
+# Dipl0om
+Diplom
